@@ -1,3 +1,6 @@
+![image](https://github.com/JashandeepSidhu712/JashandeepSidhu712/assets/117754690/32dbf0d8-dddc-49fa-9d53-af7fd36e2fc2)
+
+
 ## Jashandeep Kaur Sidhu
 
 Currently a third year CSE student, passionate about using my technical knowledge and skills to solve real- world problems and make everyday lives easier with the help of technology. 
