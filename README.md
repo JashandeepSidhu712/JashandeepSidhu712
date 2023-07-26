@@ -1,3 +1,5 @@
+## Jashandeep Kaur Sidhu
+
 Currently a third year CSE student, passionate about using my technical knowledge and skills to solve real- world problems and make everyday lives easier with the help of technology. 
 
 As someone who is highly focused and attentive to detail, I thrive on building quality systems that surpass end users' expectations. 
